@@ -1,1 +1,1 @@
-# elizabeth-mcgeorge.github.io
+# e-mcgeorge.github.io
